@@ -1,4 +1,4 @@
-![Screenshot 2024-08-17 110630](https://github.com/user-attachments/assets/c27db0b9-8a0a-4299-bd76-ea6e53b13ac5)## WORKSHOP-1 WORKING ON A IMAGE
+## WORKSHOP-1 WORKING ON A IMAGE
 
 ## AIM:
 
